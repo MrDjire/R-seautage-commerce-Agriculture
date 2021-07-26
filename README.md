@@ -1,0 +1,2 @@
+# R-seautage-commerce-Agriculture
+Salut ! Adama Djire Suis-je, Étudiant à l'université des sciences économiques et de gestion de Bamako,Mali  . Professionnel dans un domaine de commerce des chossure plastique et le commerce électronique. Je cherche une relation sérieuse du commerce international et marketing du réseau. Je suis également cultivateur en abondance des champs cultivables que je cherche ⛑️ aide pour bien aménagé 
